@@ -5,7 +5,7 @@ URL : https://chesterking123.github.io/covid19tracker/ (non functional)
 
 # Video Preview
 
-https://www.linkedin.com/posts/deep-contractor-85b508168_dashboard-chart-dashboard-activity-6648825724289585154-XJW4
+YouTube : https://youtu.be/ZqhOEjsOx5w
 
 # Preview
 
